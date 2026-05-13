@@ -1,4 +1,4 @@
-
+Download king legacy instant Script for king legacy, the best script available, featuring custom skins and auto-collect. This powerful tool ensures you have the upper hand in
 
 
 
